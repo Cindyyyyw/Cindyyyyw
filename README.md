@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Cindyyyyw
+- 👀 I’m interested in movie, vfx, video editing
+- 🌱 I’m currently learning computing science
+- 📫 How to reach me: https://www.instagram.com/cindyyyyyw/
